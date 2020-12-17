@@ -36,3 +36,4 @@ This is the thread Needlework Vault included in their Ponchartrain Hotel kit.
 * Canvas sizes: #18
 
 ## Resources
+* [Needlepoint Joint needlework thread information](https://needlepointjoint.com/pages/needlework-thread-information)
