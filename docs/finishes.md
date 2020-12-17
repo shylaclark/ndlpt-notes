@@ -1,6 +1,6 @@
 # Finishes
 
-* [KC Needlepoint: Round jewelry box](https://www.kcneedlepoint.com/products/round-leather-gift-box?utm_source=pinterest&utm_medium=social)
+* [Colonial Needle Round Leather Gift Box](https://www.kcneedlepoint.com/products/round-leather-gift-box?utm_source=pinterest&utm_medium=social)
 * [KC Needlepoint: Self finishing card wallet](https://www.kcneedlepoint.com/products/self-finishing-card-wallet?utm_source=pinterest&utm_medium=social)
 * [KC Needlepoint: Leather jewelry box](https://www.kcneedlepoint.com/collections/leather-goods/products/leather-jewelry-box?utm_source=pinterest&utm_medium=social)
 * [KC Needlepoint: ](https://www.kcneedlepoint.com/collections/leather-goods/products/leather-luggage-tag)
