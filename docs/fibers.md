@@ -3,8 +3,8 @@
 ## Silk
 
 
-## Silk 'n Ivory
-* [Silk n' Ivory](https://www.brownpaperpackages.com/Silk-and-Ivory/Default.asp) is my favorite fiber right now. It's thick, strong, plush, and bouncy with excellent coverage. 
+## Silk & Ivory
+* [Silk & Ivory](https://www.brownpaperpackages.com/Silk-and-Ivory/Default.asp) is my favorite fiber right now. It's thick, strong, plush, and bouncy with excellent coverage. 
 * Available in 244 colors, with many more to come.
 * Canvas sizes: #13, #14, #16, or #18
 * Needle size: 24
