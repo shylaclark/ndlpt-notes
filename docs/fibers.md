@@ -3,7 +3,7 @@
 ## Silk
 
 ### [Splendor by Rainbow Gallery]()
-We recommend this .  The thread comes in three bundles of 4 plies, that makes it easy to identify groups of plies.   The twist on each strand is higher than other strandable silks.   Available on a 8 yard card.  
+The thread comes in three bundles of 4 plies, that makes it easy to identify groups of plies. The twist on each strand is higher than other strandable silks. Available on a 8 yard card.  
 
 * Made in France of **100% silk**; $ 4.05
 * 12 ply, strandable
@@ -37,3 +37,4 @@ This is the thread Needlework Vault included in their Ponchartrain Hotel kit.
 
 ## Resources
 * [Needlepoint Joint needlework thread information](https://needlepointjoint.com/pages/needlework-thread-information)
+* []()
