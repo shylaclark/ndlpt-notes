@@ -1,8 +1,8 @@
-# Canvas and Needles
+# Canvas
 
 * Designs should have a margin of at least 2".
 * Why do some designs have huge margins? So the stitcher has more flexibility.
-* Stitch painting is not necessary, and it's significantly more time-consuming for the painter resulting in a more expensive canvas.
+* Stitch painting is not necessary, and it's significantly more time-consuming for the painter, resulting in a more expensive canvas.[[source]](https://napaneedlepoint.com/about-needlepoint/2016/06/19/quality-needlepoint-canvases/)
 
 
 
@@ -22,9 +22,7 @@
 - 4" finished design: 3.5" x 3.5" square or 3.5" diameter circle
 
 ### Belt
+- Cut canvas: 6" wide x
 
-
-## Favorites
-
-## Resources
-* [Napa Needlepoint: Quality needlepoint canvases](https://napaneedlepoint.com/about-needlepoint/2016/06/19/quality-needlepoint-canvases/)
+### Stockings
+- Cut canvas: 18" wide for XL stocking
